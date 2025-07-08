@@ -18,4 +18,4 @@
 总的来说，内容丰富、多样化策略不仅能吸引新用户，还能增加老用户的粘性，是平台持续发展的重要保障。未来，随着技术不断创新，内容形式也将不断推陈出新，为用户带来更加丰富和沉浸式的观看体验。  
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg85065/85465 ）</span>
